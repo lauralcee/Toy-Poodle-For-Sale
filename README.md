@@ -1,1 +1,3 @@
-# Toy-Poodle-For-Sale
+# Toy Poodle For Sale
+The toy poodle adult is a very small dog. And their puppies are very tiny indeed. This tiny size makes this small Poodle dog breed vulnerable to injury at any time but especially when they are puppies, and this is something to consider when deciding between a puppy and a rescue dog. When do [toy poodle for sale](https://cutetoypoodlesonline.com/)?
+Toy Poodle puppies are intelligent, active, social, friendly and might just be the perfect apartment pet, lap dog and daily companion. They have curly fur in lots of colors, with droopy ears and dark eyes. Although not a guard dog, they will bark like a watch dog when visitors arrive. Toy Poodles need regular exercise, training and grooming.
